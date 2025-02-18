@@ -1,1 +1,1 @@
-# Anal-tica-de-datos2025
+# Analítica-de-datos2025
